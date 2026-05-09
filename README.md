@@ -1,1 +1,1 @@
-# SNaiKuai
+SNaifyinformation.ccKuai
